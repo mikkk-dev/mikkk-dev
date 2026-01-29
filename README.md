@@ -1,4 +1,4 @@
-## Hi, I'm a 19 yo Game Developer from Poland 
+## 🐈‍⬛ Hi, I'm a 19 yo Game Developer from Poland 
 
 ### My links:
 <ul>
